@@ -1,1 +1,1 @@
-# rsschool-cv
+https://captmelancholy.github.io/rsschool-cv/cv
